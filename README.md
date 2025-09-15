@@ -8,5 +8,4 @@
 - 🤔 I’m looking for help with advanced coding.
 - 💬 Ask me about anything!
 - 📫 How to reach me: (https://www.linkedin.com/in/christopher-ceder/)
-- ⚡ Fun fact: ...
 -->
